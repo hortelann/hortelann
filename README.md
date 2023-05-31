@@ -1,4 +1,4 @@
-## ☘️ Fellipe Hortelã Lemos    ▄︻┻═┳一 
+## ☘️ Fellipe Hortelã Leanos    ▄︻┻═┳一 
 
 📍 Fortaleza, Ceará
 <div align="center">
